@@ -1,4 +1,4 @@
-# 
+# Best Adobe InDesign effects for Mac OS | VIP Adobe InDesign effects for PC Windows. Featuring rigging and multi-page-support — optimized for maximum performance on every platform.
 
 
 
